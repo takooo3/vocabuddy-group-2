@@ -13,10 +13,10 @@ Luca 好可愛
 
 ## 組員的 GitHub 帳號
 
-1. yyc000123
-2. brAnChes1029
-3. takooo3
-4. juanjuan007
+1. @yyc000123
+2. @brAnChes1029
+3. @takooo3
+4. @juanjuan007
 
 ## 專案簡介
 
